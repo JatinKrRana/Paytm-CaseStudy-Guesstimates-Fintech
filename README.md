@@ -1,4 +1,4 @@
-# Case-Studies-Guesstimates-for-FinTech-Industries
+# Paytm Case Study: FinTech Insights & Market Guesstimates
 
 Project Link:- https://docs.google.com/document/d/1PYMxOg1Q2vsExY895H_NBi1SYVeYMt8Uh-Ih3u0Ry44/edit?usp=sharing
 
